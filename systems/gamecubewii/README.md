@@ -1,0 +1,2 @@
+# Gamecube/Wii
+
